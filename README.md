@@ -1,1 +1,1 @@
-# hello-world
+# hello-world I am a patient service representative at the Cleveland Clinic in downtown Cleveland, Ohio. I graduated with an associate's degree in Nuclear Medicine Technology in 2017. I am looking to possibly change careers and am interested in web design and development. Aside from my career life, I have the best cat, Paxton and the best (soon to be hubby) in the world.
